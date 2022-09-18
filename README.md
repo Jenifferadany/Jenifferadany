@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **jeniffer.adanyprofessional@gmail.com**
 
-- 📄 Know about my experiences [Students to Business - Microsoft 2017](Students to Business - Microsoft 2017)
+- 📄 Know about my experiences (Students to Business - Microsoft 2017)
 
 - ⚡ Fun fact **Miss Minas Gerais de las Americas 2020**
 
